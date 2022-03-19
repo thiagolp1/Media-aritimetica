@@ -1,0 +1,2 @@
+# Media-aritimetica
+atividade
